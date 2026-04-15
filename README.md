@@ -1,6 +1,6 @@
 # CD25 MN DFL Reference Repository
-[Olmsted 20/24](https://youtu.be/dQw4w9WgXcQ?si=e5-3MsxIr2D_vA8m)
-[SD25](https://rochestermndfl.org)
+- [Olmsted 20/24 Website](https://youtu.be/dQw4w9WgXcQ?si=e5-3MsxIr2D_vA8m)
+- [SD25 Website](https://rochestermndfl.org)
 
 ## Upcoming Events
 - Litter Bit Better (4/30, 5-6PM)
