@@ -4,31 +4,31 @@
 
 ## Upcoming Events
 - Litter Bit Better (4/30, 5-6PM)
-	North REC Center
-	Meet in the parking lot of North REC Center, we will move north towards Northern Hills Drive.
-		Karl plans on attending/volunteering.
+	- North REC Center
+		- Meet in the parking lot of North REC Center, we will move north towards Northern Hills Drive.
+			- Karl plans on attending/volunteering.
 - Earth Fest Expo (5/2, ????)
-	??????????
-		Karl doesn't even know what this is lmao
+	- ??????????
+		- Karl doesn't even know what this is lmao
 - CD1 Convention (5/3, Open 11:30 AM Call to Order 1PM)
-	Stewartville High School
-		Karl doesn't plan on attending
+	- Stewartville High School
+		- Karl doesn't plan on attending
 - Rochester Pride (5/16, ?????)
-	I think this is at Soldier's Field
-	I am told this is pretty gay.
-		Karl plans on attending, probably not volunteering.
+	- I think this is at Soldier's Field
+	- I am told this is pretty gay.
+		- Karl plans on attending, probably not volunteering.
 - State DFL Convention (5/29-5/31)
-	Mayo Civic Center
-		Karl does not plan on attending
+	- Mayo Civic Center
+		- Karl does not plan on attending
 - Juneteenth (6/??, ???)
-	????????????
-		Karl plans on attending, probably not volunteering
+	- ????????????
+		- Karl plans on attending, probably not volunteering
 - Primary Election (8/11)
-	????????
-		Karl plans on voting :)
+	- ????????
+		- Karl plans on voting :)
 - FDR Dinner (8/30, 5-7PM)
-	Empire Event Center
-		Karl doesn't know if he will be attending
+	- Empire Event Center
+		- Karl doesn't know if he will be attending
 - General Election (11/3)
-	????????
-		Karl plans on voting :)
+	- ????????
+		- Karl plans on voting :)
