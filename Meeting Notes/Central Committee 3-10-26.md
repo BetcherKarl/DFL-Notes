@@ -74,3 +74,6 @@ The pre-convention committees include:
 2. Elect State Central Committee Delegates (Chair + Vice Chair + 4 others + 6 alternates)
 3. Elect Delegates to State Convention (17 delegates + 17 alternates)
 4. Vote on resolutions (34 resolutions)
+
+#meeting/26/03/10
+#meeting/centralcommittee 
